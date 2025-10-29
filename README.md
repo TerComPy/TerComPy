@@ -46,7 +46,7 @@
 ![Ruby](https://img.shields.io/badge/ruby-%23CC342D.svg?style=for-the-badge&logo=ruby&logoColor=white)
 ![Assembler](https://img.shields.io/badge/Assembler-%23000000.svg?style=for-the-badge&logo=assemblyscript&logoColor=white)
 
-### Чем я еще увлекаюсь кроме программирования?🌝
+### Чем я еще увлекаюсь, кроме программирования?🌝
 
 >Монтирую видеоролики🎥
 
