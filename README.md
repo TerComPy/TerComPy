@@ -1,6 +1,6 @@
 ## Привет, мой дорогой друг🤚
 
-Давай познакомимся с тобой!😇
+Давай познакомимся!😇
 
 ## ❓Кто я такой?
 ![Моя ава :3](https://yt3.googleusercontent.com/3JmFnASATEe2Ru9yRI9HeA9070aIUNIs-zGogwSzcaTZqzkf6AgXTdzM5sExlyLvvkQa7lQ4ew=s160-c-k-c0x00ffffff-no-rj)
